@@ -1,5 +1,7 @@
 Second try...
 
-After an unsecessful harvest why did the farmer turn to playing music.....
-because he had alot of sick beets!
+What's the difference between a well dressed man on a bicycle and a poorly dressed man on a unicycle? 
 
+........
+
+Attire.
